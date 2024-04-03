@@ -1,4 +1,4 @@
-Report Bugs in Issues/Pull requests!
+Report Bugs in Issues!
 
 For Dropping Game on scratch by 3DVoid!
 
